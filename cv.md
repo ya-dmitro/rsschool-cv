@@ -7,7 +7,7 @@
 - e-mail - **[yabanzhy.dmytro@gmail.com](yabanzhy.dmytro@gmail.com)**
 - GitHub - **[ya-dmitro](https://github.com/ya-dmitro)**
 - LinkedIn - **[Dmytro Yabanzhy](https://www.linkedin.com/in/dmytro-yabanzhy-a0b08b147/)**
-- telegram - **[Bro_dy](t.me/Bro_dy)**
+- telegram - **[Bro_dy](https://t.me/Bro_dy)**
 - discord - **brody_0511**
 
 
